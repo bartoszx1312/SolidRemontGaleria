@@ -1,0 +1,6 @@
+![solidremontpc1](https://github.com/user-attachments/assets/6ec78d42-d571-4a0b-89d7-d550f44aaf6c)
+![solidremontpc2](https://github.com/user-attachments/assets/f207b228-8909-4fc7-a362-030bb8c9117f)
+![solidremontpc3](https://github.com/user-attachments/assets/952adf39-44fb-4f69-89f9-9d6e30f00c63)
+![solidremontpc4](https://github.com/user-attachments/assets/069065e5-8235-43d3-b032-e075afdd0535)
+![solidremontpc5](https://github.com/user-attachments/assets/376a64d5-bd1f-43f3-98ae-e9fc242ea21d)
+![solidremontpc6](https://github.com/user-attachments/assets/09e2b0ca-3ab3-4485-91f9-45d9b7d26d35)
